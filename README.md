@@ -1,16 +1,13 @@
-## Hi there 👋
+# !rhaay7 
 
-<!--
-**rhaay7/rhaay7** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+ é o perfil da rhaayrhaay seu fofoqueiro de meia tigelaKKKKKKKKKKKKK.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+ seja bem vindo!   ;)
+
+
+ ig da rhaayrhay é @rhaayribeiro_   : }
+
+
+![](https://media1.tenor.com/m/ExlniIS7-qkAAAAC/minions-love.gif)
